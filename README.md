@@ -31,4 +31,4 @@ to okazałoby się, że kurs "efektywny" trwa ułamek czasu. Gdyby je wyciąć, 
 
 I chyba to mnie w postawie Mirosława Kardasia naprawdę najbardziej denerwuje. 
 
-Mirku - mówisz, że twoje wykłady to "samo gęste" - <a href="https://youtu.be/ZagYlXXJo_A?t=2637">konsystencja to nie wszystko!</a>
+Mirku - mówisz, że twoje wykłady to "samo gęste" - <a href="https://youtu.be/ZagYlXXJo_A?t=2637" target="_blank">konsystencja to nie wszystko!</a>
