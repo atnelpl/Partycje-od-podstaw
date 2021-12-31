@@ -30,3 +30,5 @@ Gdyby wyciąć wszystkie momenty w stylu
 to okazałoby się, że kurs "efektywny" trwa ułamek czasu. Gdyby je wyciąć, ale trochę zwolnić paplaninę; gdyby do każdej lekcji przygorować prezentację, a nie skakać haotycznie między oknami, gdyby zrobić odnośniki do poprzednich lekcji zamiast powtarzać to samo jeszcze raz... Słowem, gdyby wykorzystać możliwości, jakie daje taka forma kursu i jej przewagę nad wykładami na żywo - to byśmy mieli CUDEŃKO. Potencjalnie naprawdę warte przetłumaczenia na ang i sprzedawania na cały świat. Ale wtedy trzeba byłoby się douczyć dydaktyki, nowych narzędzi, poświęcić czas na podglądnięcie innych - albo po prostu komuś zapłacić za ogarnięcie tego. Widać zgarnięcie siedem razy większej kasy, niż zakłdanano nie każdego motywuje do dania z siebie więcej niż się zamierzało. 
 
 I chyba to mnie w postawie Mirosława Kardasia naprawdę najbardziej denerwuje. 
+
+Mirku - mówisz, że twoje wykłady to "samo gęste" - <a href="https://youtu.be/ZagYlXXJo_A?t=2637">konsystencja to nie wszystko!</a>
